@@ -1,1 +1,1 @@
-# kaylin-nicklaus.github.io
+Map of my Fave Places
